@@ -1,5 +1,5 @@
-SVELTE GROUP
-Estabillo, Angeline
-Moreno, Sharmaine Anne
-Salem, Andrea
-Soliman, Jennalyn
+SVELTE GROUP...
+ESTABILLO, Angeline
+MORENO, Sharmaine Anne
+SALEM, Andrea
+SOLIMAN, Jennalyn
